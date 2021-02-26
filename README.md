@@ -1,4 +1,4 @@
-# vpnbaz
+# خرید vpn با ip ثابت
 خرید vpn - خرید فیلترشکن اندروید
 <h1 style="text-align: center;"><a href="https://khabaiha.com/%d8%ae%d8%b1%db%8c%d8%af-vpn-%d8%a8%d8%a7-ip-%d8%ab%d8%a7%d8%a8%d8%aa/">خرید vpn با ip ثابت</a></h1>
 <h2 style="text-align: center;">آی پی ثابت برای بایننس</h2>
